@@ -2,3 +2,4 @@
 - 🌱 I’m currently learning Python and basic webdev
 - 📫 How to reach me: Contact me on Discord @blood_drunk_hunter
 - ♂️ I am a guy, my pronouns are he/him
+- 🖼️ [PFP](https://www.pixiv.net/en/artworks/56221252) by [Dairi](https://www.pixiv.net/en/users/4920496)
