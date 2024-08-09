@@ -1,0 +1,4 @@
+- 📛 I’m nuts-au. I am also known as "Nattsu", "arch-user" & "Nuts"
+- 🌱 I’m currently learning Python and basic webdev
+- 📫 How to reach me: Contact me on Discord @blood_drunk_hunter
+- ♂️ I am a guy, my pronouns are he/him
